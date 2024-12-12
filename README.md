@@ -2,7 +2,7 @@
 - ★  i like to draw and ztuff ! !
 - ★  inzert text heh
 - ↓ you could find me on !
-- twitter , TikTok , bluesky , youtube .
+- twitter , TikTok , bluesky , youtube , ponytown .
 - ★ my prounounz are they/xe/star ! !
 - ★ bday ? : December 5th ! !
 
