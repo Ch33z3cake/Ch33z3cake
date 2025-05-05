@@ -1,8 +1,9 @@
-- ★ HIHIHIHIHHI IM TWINKLE OR CLOCK WHATEVA YOY CALL ME
-- ★  i like to draw and ztuff ! !
-- ★  inzert text heh
+- ★ hello . ^.^ ~ . 🍎 。⋰
+- ★  i  like  to  draw  and  ztuff !
+⠈⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄
 - ↓ you could find me on !
 - twitter , TikTok , bluesky , youtube , ponytown .
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 - ★ my prounounz are they/xe/star ! !
 - ★ bday ? : December 5th ! !
 
